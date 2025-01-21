@@ -29,7 +29,7 @@
       2. There is plenty of evil on this planet, and we humans perpetrate more than our share of it. This is done in `Beta`, not `Alpha`, `Theta` or `delta`.
       3. Try giveing someone a headache. If you visualize this "event" as vividly as necessary to accomplish anything at all, then You, not your intended victim, will get the headache and/or you will snap out of Alpha.
 
-6. Choosing an event that is a solution to a problem, that you `desire`, `believe` can come about and, with the following exercise, will learn to `expect`. Say your boss has been ill-tempered lately. 
+6. Choosing an event that is a solution to a problem, that you `desire`, `believe` can come about and, with the following exercise, will learn to `expect`. Say your boss has been ill-tempered lately. This is called `desire`, `belief`, `expectancy` `trilogy`.
 
    1. Step 1.  On your mental screen, thoroughly re-create a recent event which involved the problem. Relive it for a moment.
 
@@ -52,9 +52,14 @@
 
 2. "Go into tins" means to put something into a tin or cans, or to preserve it in a tin. For example, you might put food into tins to preserve it.
 
-3. vividly /ˈvɪvɪdli/ adverb
+3. `vividly` /ˈvɪvɪdli/ adverb
    1. in a way that produces powerful feelings or strong, clear images in the mind. 
    2. "Margaret remembers vividly the day she received the grim news"
    3. in an intensely deep or bright manner.
    4. "flowers of different hues shining vividly in the bright sunshine"
-4. 
+
+
+
+6. asdf
+
+7. 
