@@ -6,8 +6,16 @@ https://archive.org/details/JoseSilvaTheSilvaMindControlMethod/page/n13/mode/2up
 1. A description of typical training session in Mind control.
 
 - Page 18, Para 1
+- `learning to use more of your mind and to use it in a special manner.`
 
-2. What is Alpha, Beta, Theta and Delta state
+2. What is Meditation? - Page 19, Para 4
+   1. it means `thinking things over`. If you set this book aside for a moment and consider what to have for dinner tomorrow, you are meditating.
+
+
+
+
+
+3. What is Alpha, Beta, Theta and Delta state
 
     ![Brain Waves](50_50_BrainWaves.avif)
 
@@ -33,8 +41,12 @@ https://archive.org/details/JoseSilvaTheSilvaMindControlMethod/page/n13/mode/2up
 
     ![BrainStates](52_50_BrainStates.webp)
 
-1. What is Meditation? 
-
-- Page 19, Para 4
 
 4. 
+
+## New Words
+1. stupefying
+   1. adjective
+   2. making one unable to think or feel properly. "the game ends with a sense of stupefying boredom"
+   3. astonishing and shocking. "stupefying financial incompetence"
+2. asdf

@@ -7,15 +7,24 @@ https://archive.org/details/JoseSilvaTheSilvaMindControlMethod/mode/2up
 
 References
 
-https://pradeepaggarwal.com/mh/
-Offline Workshop - Hypnotize Anyone In 30 Seconds Or Less! Two Full Day Practical Workshop In Hyd
-https://www.youtube.com/watch?v=r9rIbHPyOBU
-https://www.udemy.com/topic/hypnotherapy/
+1. Offline Workshop - Hypnotize Anyone In 30 Seconds Or Less! Two Full Day Practical Workshop In Hyd
+   1. https://pradeepaggarwal.com/mh/
+   2. https://www.youtube.com/watch?v=r9rIbHPyOBU
 
-Learn To Attract Things You Want In Life
-https://www.youtube.com/watch?v=fQfZtg9Y_6k
+2. https://www.udemy.com/topic/hypnotherapy/
+   1. https://www.udemy.com/course/silva-ultramind-esp-streamlined-course/    
 
-https://www.mindvalley.com/ultramind/sales
+3. Learn To Attract Things You Want In Life
+   1. https://www.youtube.com/watch?v=fQfZtg9Y_6k
+   2. https://www.youtube.com/@Mindvalley
+
+4. https://www.mindvalley.com/ultramind/sales
+
+5. LEARN HYPNOSIS NOW! HYPNOTIZE ANYONE DEMOS BY PRADEEP AGGARWAL
+   1. https://youtu.be/SNsiITmmw-s?t=1555
+   2. 
+
+6. 
 
 
 
