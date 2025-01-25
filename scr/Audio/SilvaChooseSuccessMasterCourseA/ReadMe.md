@@ -15,3 +15,13 @@ https://www.zamzar.com/files/019487bd-29f9-7233-afd6-4cb34eaecf0b/?from=mp3&to=t
 https://any2text.com/files/1771274
 
 https://notegpt.io/audio-to-text-converter
+
+
+https://turboscribe.ai/dashboard
+
+
+## New Words
+
+1. clairvoyant - noun 
+   1. a person who claims to have a supernatural ability to perceive events in the future or beyond normal sensory contact.
+2. 
