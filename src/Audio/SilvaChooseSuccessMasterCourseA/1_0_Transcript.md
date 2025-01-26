@@ -1,3 +1,4 @@
+## Introduction
 
 Hi, I'm Jose Silva Jr. and I want to thank you for choosing the Silva Method. This program contains 24 audio sessions with 15 specific formula type techniques to help you. You can take this course at your own pace.
 
@@ -5,15 +6,13 @@ On the first part of each recording is a mini workshop. The workshop is followed
 
 Do not skip ahead. You can repeat any program whenever you desire. You can review the explanation and you can also review the mental exercise whenever you wish to reinforce it.
 
-You do not need to listen to the recording all in one sitting. Go at your own pace. Remember, the conditioning cycles require you to close your eyes.
+You do not need to listen to the recording all in one sitting. Go at your own pace. Remember, the `conditioning cycles` require you to close your eyes. Do not use them when you are driving or when you are involved in any other activity where you must use your eyesight. Wait until you have time to close your eyes and relax. 
 
-Do not use them when you are driving or when you are involved in any other activity where you must use your eyesight. Wait until you have time to close your eyes and relax. I suggest that you practice the long relaxed cycle.
-
-We also call it the `Silva Centering Exercise`. Practice it several times in order to establish a good, deep level of mind. In fact, we recommend that you continue to practice it at least once a week for the first three months to make sure that you establish a good, deep, healthy level of mind where you can correct all kinds of problems.
+I suggest that you practice the `long relaxed cycle`, we also call it the `Silva Centering Exercise`. Practice it several times in order to establish a good, deep level of mind. In fact, we recommend that you continue to practice it at least once a week for the first three months to make sure that you establish a good, deep, healthy level of mind where you can correct all kinds of problems.
 
 If you have any questions, you can contact your local Silva instructor or feel free to contact us here at Aviles Production anytime. We can be of assistance to you. Now let me turn the floor over to Ed Byrne. Ed began presenting the Silva Method in Cocoa Beach, Florida in 1977.
 
-We asked him to join us at the Silva International Headquarters here in Laredo, Texas in 1981 and he has been here ever since. He worked closely with my father and wrote several books with him including Sales Power, The Silva Method for Sales Professionals, The Silva Method, Think and Grow Fit, Jose Silva's Ultramind ESP System, and he had just co-authored a new book with me, Jose Silva's Everyday ESP. I have watched Ed apply these techniques in his own life to become healthier, happier, and more successful.
+We asked him to join us at the Silva International Headquarters here in Laredo, Texas in 1981 and he has been here ever since. He worked closely with my father and wrote several books with him including Sales Power, The Silva Method for Sales Professionals, The Silva Method, Think and Grow Fit, Jose Silva's Ultramind ESP System, and he had just co-authored a new book with me, `Jose Silva's Everyday ESP`. I have watched Ed apply these techniques in his own life to become healthier, happier, and more successful.
 
 He has also worked with thousands of Silva graduates to help them overcome problems and to help both themselves and their loved ones. Follow Ed's guidance and you will surely succeed. Now here's Ed.
 
@@ -43,7 +42,7 @@ The main question is, what does it take for you to be successful with this cours
 
 So let's talk about that. Let's talk about your reasons for taking this course. You've already invested some money and you're ready to invest some time.
 
-That shows that you have a desire. What is it exactly that you desire? What is it that you hope to get out of this? What kind of benefits? Are they personal benefits, strictly for yourself, the way you feel, the way you function? Do you want to help your family, your loved ones? Do you want to have a family, help a family? Maybe it's career, that you want help in your career. Maybe it has to do with leisure time pursuits and recreational pursuits.
+That shows that you have a `desire`. What is it `exactly that you desire`? What is it that you hope to get out of this? What kind of benefits? Are they personal benefits, strictly for yourself, the way you feel, the way you function? Do you want to help your family, your loved ones? Do you want to have a family, help a family? Maybe it's career, that you want help in your career. Maybe it has to do with leisure time pursuits and recreational pursuits.
 
 That's the thing that you need most in your life right now. What is the reason that you have right now, the primary reason that you have for wanting to improve your life? Think about that for a moment. What is it that you want? When you achieve that, how will that help you? How will your life be different? That's an important thing to think about and to focus on.
 
@@ -55,29 +54,29 @@ Some people want to feel better about themselves. They want to boost in confiden
 
 They'll have more influence. People will listen to them and pay attention to them and like them. Why is that important? Because it will allow them to do the constructive and creative things that they really want to do with their lives.
 
-So, what are your reasons? It's important to know what those reasons are. Because when you have reasons, when you have reasons for doing what you're doing, then everything that we talk about, you'll filter through those reasons. You'll be thinking about, how can this help me to achieve my goal and why is this important to me to do it? What are the benefits of it? You can increase your desire by thinking of all the benefits of accomplishing your goal.
+So, what are your reasons? It's important to know what those reasons are. `Because when you have reasons, when you have reasons for doing what you're doing, then everything that we talk about, you'll filter through those reasons. You'll be thinking about, how can this help me to achieve my goal and why is this important to me to do it? What are the benefits of it? You can increase your desire by thinking of all the benefits of accomplishing your goal`.
 
 The benefits to you, the benefits to your loved ones, the benefits to other people that you know. Who else will benefit? The more people who benefit, the greater your desire will be. That all fits in with Mr. Silva's philosophy anyway.
 
-As Silva says, we're not here just to live it up. We're not here for a 70-year coffee break. We have a purpose.
+As Silva says, we're not here just to live it up. We're not here for a 70-year coffee break. `We have a purpose`.
 
-And that purpose is, he feels, to help correct problems on the planet. He says, your obligation is to be the best, whatever it is that you are, to be the best that you can be at that. To be the best parent, the best spouse, the best employee, the best employer.
+And that purpose is, he feels, to help correct problems on the planet. He says, your obligation is to `be the best, whatever it is that you are`, to be the best that you can be at that. To be the best parent, the best spouse, the best employee, the best employer.
 
-To be someone who does your job and does it well, and helps to make their world a little better place to live. Now, it's also important to focus on your desire for another reason. So you're going to learn to enter what we call deep levels of mind.
+To be someone `who does your job and does it well`, and helps to make their world a little better place to live. Now, it's also important to focus on your desire for another reason. So you're going to learn to enter what we call deep levels of mind.
 
-To go within yourself, to use more of your mind and more of your brain. You'll be learning that in this home study course. When you go deep within yourself in that manner, you will be carrying that desire that you have to those deep levels with you.
+To go within yourself, to use more of your mind and more of your brain. You'll be learning that in this home study course. When you go deep within yourself in that manner, you will be `carrying that desire that you have to those deep levels with you`.
 
-And that desire at those deep inner levels will really produce results. Remember when you were young? Remember when you were a kid? You had hopes and dreams. You could do anything.
+And `that desire at those deep inner levels` will really produce results. Remember when you were young? Remember when you were a kid? You had hopes and dreams. You could do anything.
 
 And kids are so wonderful, they think they can do just about anything. They grow up. Look at what happened back in the 60s.
 
-We were going to change the world for the better. We want to get back to that hope, get back to that belief, get back to that idealism that's so natural within us. So take your desire for why you want to take this course, why you want to improve your life, **take that desire with you when you practice the exercises that we have.**
+We were going to change the world for the better. We want to get back to that hope, get back to that belief, get back to that idealism that's so natural within us. So take your desire for why you want to take this course, why you want to improve your life, **take that desire with you when you practice the exercises that we have.** 
 
 It will pay big, big dividends. It pays another dividend too. When you have that desire at those inner levels to help people to perform better, to accomplish more things that are good for everybody and that everybody is going to be benefiting, that feeling within you will express itself in what you say and how you say it, the way you act, your body language and everything.
 
 And that's very appealing to other people. You stop and think about that for a minute. People who are really interested in you, people who make you feel better when you're around them, people that you feel it's a benefit to be around.
 
-You like those people. They have what they call charisma. That's how you have that charisma also.
+You like those people. `They have what they call charisma`. That's how you have that charisma also.
 
 At those deep, deep levels, you have that desire to do things that so many people will benefit from, you, your loved ones, and so many other people. And when that expresses itself as you're dealing with other people, that has a tremendously powerful effect. Now, **how are we going to accomplish all of these things that we're talking about? Well, everything that you do is done first in your mind.**
 
@@ -101,13 +100,20 @@ There's no limit to how far you can go. There's no limit to what you can do beca
 
 The most important key to using more of your mind is **learning to function with conscious awareness at the alpha level.** Now, what exactly is the `alpha level?` It's a level associated with relaxation and light sleep at night, daydreaming during the day. Let's approach it this way.
 
+![Brain Waves](images/48_48_BrainWaves.avif)
+
 Let's talk about your brain for just a moment. Your brain functions very much like a computer. Like any other computer, it operates on a small amount of electrical energy.
+
 
 This electrical energy vibrates or pulsates at different rates during the day. Now, during any 24-hour period, your brain frequency pulsates for maybe 20 times or 20 cycles per second. We call it CPS, abbreviated.
 
 Maybe 20 cycles per second when your eyes are focused and you're functioning at the outer conscious level during the daytime. Now, at night when you go to sleep, your brain frequency slows down. The **20 cycle per second frequency we call beta brainwave frequency**.
 
+![Brain Waves](images/48_49_AlphaBetaBrainStates.jpg)
+
 Those are the second frequencies to be discovered. When the brain slows down to about half of that speed, around 10 cycles per second, in fact, **anywhere from 7 to 14 cycles per second, when the brain slows down like that, that's known as the alpha brainwave frequency**. Alpha, first letter of the Greek alphabet, because those were the first brain frequencies ever discovered back in the 1920s with the crude sensing equipment, the crude electronic equipment that was available then.
+
+![Brain Waves](images/48_50_BrainStates.webp)
 
 It was just barely sensitive enough to detect the strongest signals, which were at alpha. Now, isn't that interesting? As we're going through the day, doing our work, making our decisions and everything, the brain's functioning at a weak frequency, an unstable frequency, the beta frequency. Yet at night when we fall asleep, the brain's functioning at the stronger alpha frequencies.
 
@@ -117,17 +123,15 @@ He began to think, if that's the strongest frequency, the most rhythmic, the mos
 
 Well, wouldn't it make sense to do our mental work, our thinking, our analyzing, our decision-making at the level where there are the fewest impediments, the lowest impedance, the greatest amount of energy? Maybe that's what makes dreams so valuable. So often we can get information from dreams. Have you ever done that? You ever had a dream about something and a day or so later it happened, a precognitive dream? Have you ever had a dream that had information that helped you make a decision or solve a problem? Many people have.
 
-In fact, the whole field of psychology and psychiatry was built upon a structure of dreams, studying dreams and what those meanings are. They tell us something. Well,** you see what happens to super successful people when they need to analyze information, when they need to make a decision, they do their thinking at the alpha level**.
+In fact, the whole field of psychology and psychiatry was built upon a structure of dreams, studying dreams and what those meanings are. They tell us something. Well, **you see what happens to super successful people when they need to analyze information, when they need to make a decision, they do their thinking at the alpha level**.
 
-They can achieve an** alpha level without falling asleep, become mentally active**, activate their minds to analyze information, think about things and make decisions. They can do this at the alpha level without going back to beta. But nine out of ten people go back to beta as soon as they start doing their thinking.
-
-They do their thinking at the worst level for doing it and their action at the same level. The super successful people do their thinking at the alpha level, the best level for thinking, and then take action at beta. This is the correct way.
+They can achieve an **alpha level without falling asleep, become mentally active**, activate their minds to analyze information, think about things and make decisions. They can do this at the alpha level without going back to beta. But nine out of ten people go back to beta as soon as they start doing their thinking. They do their thinking at the worst level for doing it and their action at the same level. The super successful people do their thinking at the alpha level, the best level for thinking, and then take action at beta. This is the correct way.
 
 Now there are lower frequencies below seven cycles per second, between four and seven cycles. It's called the `theta region`. This is associated with things like deep hypnosis, where hypnotists can take you for painless dentistry, painless childbirth, things of that sort.
 
 It's also a level where anesthetics and drugs would take you, or if you're knocked unconscious by a blow, that would be the theta level. And below that, below four cycles per second, is what's called the `delta levels`. So that's a quick overview of the brain.
 
-The key to your success, the thing you need to know to be successful, using your mind to be more successful, is to be able to use the alpha level with conscious awareness, to be able to activate your mind to analyze information and solve problems at the alpha level. You have access to more information there, more of the information stored in your own memory banks within your brain, more information that you can get through intuition from other people's brains, or wherever that information happens to be, information from higher intelligence to guide you into your purpose in life and the things that you need to be doing with your life. When you learn to function at the alpha level consciously, what you're doing is converting the so-called subconscious levels into inner conscious levels.
+The key to your success, the thing you need to know to be successful, using your mind to be more successful, is to `be able to use the alpha level with conscious awareness`, to be able to activate your mind to analyze information and solve problems at the alpha level. You have access to more information there, more of the information stored in your own memory banks within your brain, more information that you can get through intuition from other people's brains, or wherever that information happens to be, information from higher intelligence to guide you into your purpose in life and the things that you need to be doing with your life. When you learn to function at the alpha level consciously, what you're doing is converting the so-called subconscious levels into inner conscious levels.
 
 `You can function at the subconscious levels consciously.` This is what Jose Silva considers to be his greatest contribution, the ability to convert the subconscious into an inner conscious level. Once you can do that, you can make changes within yourself.
 
@@ -141,7 +145,7 @@ That's what we'll do. In the **two mental training exercises**, we call them **c
 
 Then you will learn to activate your mind and program yourself for success with specific **formula-type** techniques. You'll become mentally active while remaining at the alpha level. Well, that's kind of an overview of how we start these things.
 
-Now, the main thing is to do it. It's easy enough to talk about stuff, but the main thing is to do it, and I'm sure you're eager to get started. So why don't we do that now? Why don't we get started with a brief mind training exercise? This exercise will only take about five minutes to do, something like that.
+Now, the main thing is to do it. It's easy enough to talk about stuff, but the main thing is to do it, and I'm sure you're eager to get started. So why don't we do that now? Why don't we get started with a brief `mind training exercise?` This exercise will only take about five minutes to do, something like that.
 
 Let me explain first what we'll do, and then we'll do that. Then we'll continue and talk about some of the other things that you need to do with your mind to be successful. We'll do a longer exercise, and then we'll move on to what we call the **long relaxation exercise**, our **standard conditioning cycle**, so that you can really begin to learn to function at the deep inner levels we're talking about.
 
@@ -214,7 +218,7 @@ Start of Alpha exerciese.
 We will begin this exercise by asking you to assume a comfortable sitting position.
 Close your eyes, take a deep breath and while exhaling, relax and go deeper.
 You are now at a deeper, healthier level of mind, deeper than before.
-To help you enter a deeper, healthier level of mind, I'm going to count from ten to one.
+To help you `enter a deeper, healthier level of mind, I'm going to count from ten to one`.
 From each descending number, you will feel yourself going deeper and you will enter a deeper,
 healthier level of mind.
 Ten, nine, feel going deeper.

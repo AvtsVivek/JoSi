@@ -24,4 +24,15 @@ https://turboscribe.ai/dashboard
 
 1. clairvoyant - noun 
    1. a person who claims to have a supernatural ability to perceive events in the future or beyond normal sensory contact.
-2. 
+2. canyon - noun
+   1. a deep gorge, typically one with a river flowing through it, as found in North America.
+   2. a deep narrow valley with steep sides and often with a stream flowing through it
+3. yuppie - nounderogatory•informal
+   1. plural noun: yuppies
+   2. a fashionable young middle-class person with a well-paid job.
+4. charisma -  noun
+   1. compelling attractiveness or charm that can inspire devotion in others.
+   2. "he has tremendous charisma and stage presence"
+   3. Similar: charm, presence, aura, personality, force of personality, strength of character, individuality, magnetism, animal magnetism, drawing power, attractiveness, appeal, allure, pull, magic, spell, mystique, glamour
+   4. a divinely conferred power or talent.
+
