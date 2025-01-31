@@ -26,5 +26,7 @@ References
 
 6. 
 
+## Meanings of New Words
 
+1. "Uptight" is an adjective that means to be tense, nervous, or worried. It can also mean to be angry, indignant, or rigidly conventional
 
