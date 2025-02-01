@@ -213,7 +213,7 @@ Then we'll do the bringout by counting from one to five. If you want to go ahead
 You can go through this course at your own pace and do it your own way to make sure that you are most comfortable that you manage the experience, the way that's best for you. When you're ready and you've got about five minutes, then let's do this exercise. If you need to go to the bathroom, go to the bathroom first, you want to drink a water,
 get a drink of water. When you're ready, make yourself comfortable and we'll do our first alpha exercise.
 
-Start of Alpha exerciese. 
+Start of Alpha exercise. 
 
 We will begin this exercise by asking you to assume a comfortable sitting position.
 Close your eyes, take a deep breath and while exhaling, relax and go deeper.
