@@ -1,6 +1,6 @@
 (Transcribed by TurboScribe.ai. Go Unlimited to remove this message.)
 
-This is the Mirror of the Mind conditioning exercise of the Silva Method. Now prepare for this mind training exercise by finding a comfortable position. We will start this exercise with the 3 to 1 method.
+`This is the Mirror of the Mind conditioning exercise of the Silva Method.` Now prepare for this mind training exercise by finding a comfortable position. We will start this exercise with the 3 to 1 method.
 
 Find a comfortable position, close your eyes, take a deep breath, and while exhaling, mentally repeat and visualize the number 3 three times. Take another deep breath, and while exhaling, mentally repeat and visualize the number 2 three times. Take another deep breath, and while exhaling, mentally repeat and visualize the number 1 three times.
 

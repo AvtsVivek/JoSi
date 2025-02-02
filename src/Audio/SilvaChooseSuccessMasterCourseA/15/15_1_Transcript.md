@@ -8,7 +8,7 @@ You have your three-fingers technique. And so far, you have a couple of ways of 
 
 Another way that you can tell that you're functioning in alpha is when you apply the techniques if you're successful. If you get successful results, then you know that you're at alpha. So you've got those two ways of knowing.
 
-Well, with this new way of entering level that we call hand levitation, this is another way of really being assured that you are at your level. Hand levitation guarantees that you'll enter deep levels of mind, low frequencies, all the way into the theta brainwave level. And built into the technique is a feedback mechanism that lets you know for sure that you've entered your level.
+Well, with this new way of entering level that we call hand levitation, this is another way of really being assured that you are at your level. Hand levitation guarantees that you'll enter deep levels of mind, low frequencies, all the way into the `theta brainwave level`. And built into the technique is a feedback mechanism that lets you know for sure that you've entered your level.
 
 Now, entering level with hand levitation is very simple, although it may take you a few minutes to do it in the beginning. This technique was originally developed by a hypnotist named Milton Erickson so that his patients could take themselves to deep level and relieve him of having to spend the time getting started with them. He would allow them to use this until they had achieved a certain depth and he would pick it up from there and continue.
 
@@ -24,13 +24,13 @@ Take your dominant hand, your stronger hand, and you stare at that stronger hand
 
 In other words, you might say that you're doing it at a subconscious level using your imagination. You imagine it rising up out of your lap, getting higher and higher, all the way up until the back of your hand touches your face without any conscious effort on your part. Your subconscious, which you have already converted into an inner conscious level, will cause your hand to rise at the direction of your imagination.
 
-Now, when your hand comes up all by itself, this confirms for you that you are at your level. It confirms that you've lowered your brain frequencies all the way to five cycles theta, a deep theta level. Because your hand's not going to come up by itself because you want it to at beta.
+Now, when your hand comes up all by itself, this confirms for you that you are at your level. It confirms that you've lowered your brain frequencies all the way to `five cycles theta`, a `deep theta level`. Because your hand's not going to come up by itself because you want it to at beta.
 
-For that, you have to do it consciously. At beta, you do it consciously. At alpha, you do it consciously.
+`For that, you have to do it consciously. At beta, you do it consciously. At alpha, you do it consciously.`
 
-At theta, your subconscious will take over. And it'll come up by the use of your imagination. Now, we'll program this technique in during the next conditioning cycle.
+`At theta, your subconscious will take over`. And it'll come up by the use of your imagination. Now, we'll program this technique in during the next conditioning cycle.
 
-Here's how we'll do it. We'll program the procedure that you will use. We're not going to do it for real during this conditioning cycle.
+Here's how we'll do it. `We'll program the procedure that you will use`. We're not going to do it for real during this conditioning cycle.
 
 You'll do it for real when you practice on your own. But we'll program in the procedure that you'll use, and you'll go through the motions as if you were actually doing it for real. In other words, you'll consciously help your hand arise during this conditioning cycle.
 
@@ -62,7 +62,7 @@ That is, stare at your hand until it begins to come up all by itself. In the beg
 
 That's okay. Help it get started, and then it'll continue to rise on its own. Use your imagination.
 
-Desire it to happen. Will it to happen. Want it to happen.
+`Desire it to happen. Will it to happen. Want it to happen.`
 
 Now, why do we want to learn to enter the theta level with conscious awareness, if all of our programming is done at alpha? Good question. Here's why. Because the problem that you desire to correct must be within reach.
 
@@ -70,13 +70,15 @@ Your mind must be able to get the necessary information about the problem in ord
 
 Entering the theta level with conscious awareness opens it up for you and brings it within reach. Another good reason to practice entering the theta level, remember we spoke earlier, that your brain will tend to speed up when you become mentally active and begin to analyze problems. So if you practice going to five cycles theta when you enter your level, if you make this your base, then it will be very easy to remain on ten cycles alpha.
 
-Now, what kind of problems might be rooted at theta? Well, those things that we talked about and called limiting belief systems, they could be rooted at theta. Why is that? Well, children function at much lower brain frequencies than adults. In fact, there's kind of a correlation between the child's age and the brain frequency that they're functioning at.
+Now, what kind of problems might be rooted at theta? Well, those things that we talked about and called `limiting belief systems`, they could be rooted at theta. Why is that? Well, children function at much lower brain frequencies than adults. In fact, there's kind of a correlation between the child's age and the brain frequency that they're functioning at.
 
-For instance, a five-year-old child, their overall predominant brain frequency will be five cycles per second. When they focus their eyes, it'll be higher, of course. But much of the time, their functioning will be five cycles per second.
+For instance, a `five-year-old child, their overall predominant brain frequency will be five cycles per second`. When they focus their eyes, it'll be higher, of course. But much of the time, their functioning will be five cycles per second.
 
-And the parts of the brain associated with theta will be the active parts where their consciousness is and where they'll be making strong impressions. Now, what can happen? Maybe a five-year-old child is told that he's clumsy or that she's stupid, and the child simply accepts that. At that age, the child only reasons inductively, not deductively.
+11 Minutes
 
-The child does not analyze information. The child simply records that information on the brain cells. And that information is there, and it stays there.
+And the parts of the brain associated with theta will be the active parts where their consciousness is and where they'll be making strong impressions. Now, what can happen? Maybe a five-year-old child is told that he's clumsy or that she's stupid, and the child simply accepts that. `At that age, the child only reasons inductively, not deductively.`
+
+`The child does not analyze information. The child simply records that information on the brain cells. And that information is there, and it stays there.`
 
 Now, when these levels are within reach, then you can enter your level and use the mirror of the mind to program yourself to accomplish your goals. And if the problems, the limiting belief systems, the negative programming that was inserted there so many years ago, if they're rooted at theta, your mind can reach them and can correct the problems. You do not necessarily need to deal specifically with the problem.
 
@@ -110,9 +112,9 @@ With Mirror of the Mind, we gave you a number of strategies that you can work wi
 
 Previously, you didn't have a choice. Now, you have a choice. You can choose to change your past history, in a manner of speaking, and go ahead and be successful now.
 
-Wow, can you imagine the implications of that? You can neutralize the negative past programming so that new positive programs will work. Now, there's another reason for opening up the theta levels and bringing them within our reach, from alpha at least. Biological intelligence is rooted at theta.
+Wow, can you imagine the implications of that? You can neutralize the negative past programming so that new positive programs will work. Now, there's another reason for opening up the theta levels and bringing them within our reach, from alpha at least. 
 
-Human intelligence is rooted at alpha, 10 cycles. Biological intelligence of our body at 5 cycles theta. Psychological health problems are rooted at 10 cycles.
+`Biological intelligence is rooted at theta`. Human intelligence is rooted at alpha, 10 cycles. Biological intelligence of our body at `5 cycles theta`. `Psychological health problems are rooted at 10 cycles`.
 
 That's why we can correct them at alpha. That's probably 80% or more of the problems. But there are other health problems that are rooted at theta, where biological intelligence resides.
 
