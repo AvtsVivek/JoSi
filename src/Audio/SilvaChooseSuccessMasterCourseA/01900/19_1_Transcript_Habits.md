@@ -98,7 +98,7 @@ Do them every day. It's easy to do them every day at your level. There's no stre
 
 There's no stress when you imagine calling people on the phone. And after you get used to doing it at your level, you'll find that it will be easy to do it objectively, physically as well. If heroin addicts can program like that to eliminate the heroin addiction, you can do anything.
 
-Now, one word of caution about all this. You cannot change habits with willpower. Whenever willpower and imagination are in conflict, imagination always wins out.
+Now, one word of caution about all this. `You cannot change habits with willpower`. `Whenever willpower and imagination are in conflict, imagination always wins out.`
 
 I want to take an example, show you exactly what we're talking about. Suppose you're determined that you're going to eat better, to eat more nutritious food, to reduce your weight, to get in shape, to stay healthy and have plenty of energy, all the energy that you need to do the work that you want to do. As always, it's your choice to do this or not.
 
@@ -118,13 +118,13 @@ You know, with the cold ice cream, the hot chocolate fudge melting on the top of
 
 I have willpower, and I'm not going to have that. But it looks so good. It smells so good.
 
-You imagine the taste of it. Wouldn't that taste so... And guess what? Excuse me, would you bring me one of those, too? Imagination will always win out. Well, the good news is, you know, you can use your imagination to increase your willpower.
+You imagine the taste of it. Wouldn't that taste so... And guess what? Excuse me, would you bring me one of those, too? Imagination will always win out. Well, the good news is, you know, `you can use your imagination to increase your willpower`.
 
 At your level, program for what you desire. Get your imagination and your willpower working together. What is it you desire? Good health, that feeling of a lot of energy, a slim, sleek, sexy body.
 
 What is it that you are looking for? Program that at your level over and over. Then when the big chocolate yuck comes out, the big chocolate sundae, and you look at that, visualize the solution image you have created in your white-framed mirror of the mind, which is that sleek, sexy, healthy, fit, energized body. Imagine how good you feel all day, every day.
 
-This is much more valuable to you than a few minutes of taste in your mouth, isn't it? Get your imagination working for you instead of against you. Remember how we stated at the beginning of this Choose Success course that it's so important to have a purpose, that you have reasons for doing what you're doing. At your level, review your reasons for wanting to change your eating habits or to exercise more regularly or to stop smoking or drinking.
+This is much more valuable to you than a few minutes of taste in your mouth, isn't it? `Get your imagination working for you instead of against you.` Remember how we stated at the beginning of this Choose Success course that it's `so important to have a purpose,` that you have reasons for doing what you're doing. At your level, review your reasons for wanting to change your eating habits or to exercise more regularly or to stop smoking or drinking.
 
 Whatever habit you want to change, any habit you want to stop, any habit you want to start, at your level, review the reasons that you have for wanting to do this. If you don't have any good reasons for yourself, what about your family? Do you want your children to imitate you to smoke or drink or lose their temper or get into trouble? Or do you want them to be better than that? Reprogram. Make new habits for yourself for the sake of your loved ones.
 
@@ -148,7 +148,7 @@ I drank so much that after I stopped drinking it, I felt strange in many situati
 
 I'd be with friends, and they might be drinking something. I didn't want to, but I wanted to go through the motions of it. Watching a football game.
 
-I used to do that and drink beer. Then all of a sudden, I had to watch football games without drinking anything. Well, I found substitutes.
+I used to do that and drink beer. Then all of a sudden, I had to watch football games without drinking anything. Well, `I found substitutes.`
 
 I found other things that I could drink. And now that the non-alcoholic beers have become so popular, that's an easy way to do it. Drosilva suggests using a glass of tomato juice spiked with a liberal amount of hot pepper sauce whenever you have an urge to drink.
 
@@ -168,7 +168,7 @@ I've said, Hey, I've got a new brand of chicory coffee. Would you like to try it
 
 And I talk to them as we drink it and they'll drink it. And usually after a while, they'll say, What kind of coffee did you say this was? Then I'll tell them what it really is. It's kind of interesting.
 
-It doesn't even taste like molasses, but it's delicious. It's always good to have an instead of. Mr. Silva says that if you take a habit away from somebody, you take something away that they're accustomed to, they're going to go back to it unless you come up with a substitute.
+It doesn't even taste like molasses, but it's delicious. `It's always good to have an instead of`. Mr. Silva says that if you take a habit away from somebody, you take something away that they're accustomed to, they're going to go back to it unless you come up with a substitute.
 
 So do that for yourself. What is a substitute? The substitute could be something that you want more than the habit. The sleek, sexy body more than the chocolate sundae, for instance.
 

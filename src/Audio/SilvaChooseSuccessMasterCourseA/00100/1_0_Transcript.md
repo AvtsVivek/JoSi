@@ -215,6 +215,8 @@ get a drink of water. When you're ready, make yourself comfortable and we'll do 
 
 Start of Alpha exercise. 
 
+30 minutes 45 seconds
+
 We will begin this exercise by asking you to assume a comfortable sitting position.
 Close your eyes, take a deep breath and while exhaling, relax and go deeper.
 You are now at a deeper, healthier level of mind, deeper than before.
