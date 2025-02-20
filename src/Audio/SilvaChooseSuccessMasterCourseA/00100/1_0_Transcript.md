@@ -201,7 +201,7 @@ You'll continue to follow the instructions. At this level of the mind and any ot
 
 This means that the instructions that we give, the positive statements that we have, the programming techniques that we program in at these levels, will be effective for you at all levels. This is what we're talking about. We'll program in that whenever you mention relax, mentally or verbally, tell yourself to relax, you will.
 
-Step 6. We'll also program in that we come out of level by counting from one to five. We count down to go deeper. We count one to five to come out.
+Step 6. We'll also program in that we come out of level by counting from one to five. `We count down to go deeper. We count one to five to come out`.
 
 Step 7. When we do that, we'll do a health clearance to show that your vision, eyesight, and hearing improve, that you'll be feeling terrific. Then we'll have the first of our programming statements to help you know what you're capable of doing, to let your mind know, remind it what it's capable of. Say the difference between genius mentality and lay mentality is that geniuses use more of their minds and use them in a special manner.
 

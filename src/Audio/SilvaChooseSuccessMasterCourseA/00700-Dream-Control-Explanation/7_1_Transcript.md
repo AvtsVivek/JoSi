@@ -62,7 +62,7 @@ Well as he thought back on those experiences with his former friend began to rec
 
 He also told me to go ahead and deposit his check that he'd gotten his money's worth and a whole lot more just by finding an additional way to draw on his past experiences to help him make better business decisions today. He now had enough information that he had the options that he could choose whether to go ahead with the project or not. He could choose success or avoid failure because he had more information to work with. 
 
-Dreams are wonderful communications tools to help you get information and make decisions so that when you do your programming you'll know that you're right. There'll be no doubt. It's important when you're doing your programming to remove all doubts. 
+`Dreams are wonderful communications tools to help you get information and make decisions` so that when you do your programming you'll know that you're right. There'll be no doubt. It's important when you're doing your programming to remove all doubts. 
 
 These communications tools are essential to doing that. You can use the information in your dreams to help you manage your life better just as the attorney did and you can use the information in dreams to guide you in your programming using the techniques that you're learning in the Silva Method Choose Success course. Dreams can provide a wide variety of information, many types of information. 
 
