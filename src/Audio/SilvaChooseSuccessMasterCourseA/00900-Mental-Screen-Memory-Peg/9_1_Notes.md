@@ -1,5 +1,7 @@
 
 
+1. Objective Dimension, the Physical Dimension, to the Subjective Dimension or the Mental Dimension.
+
 https://artofmemory.com/blog/peg-lists/
 
 one - gun
