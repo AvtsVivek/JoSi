@@ -81,9 +81,9 @@ Number eight, the letter F, the word F, mental picture, a price tag of eight mil
 Number nine, the letter B, the word B, mental picture, land and water.
 Number ten, the letters T and S, the word Toes, mental picture, ten Toes.
 
+`Clairvoyance` is the claimed ability to perceive events or objects that are not directly within the range of normal human senses, often involving the ability to see the future or see things that others cannot. It's a type of extrasensory perception (ESP) and is often associated with psychic abilities. 
 
-
-## Refernces
+## References
 1. What is Visualization?
    1. https://www.youtube.com/watch?v=i_Cjv0URDSg
    2. Jose Silva explains how to improve learning ability
