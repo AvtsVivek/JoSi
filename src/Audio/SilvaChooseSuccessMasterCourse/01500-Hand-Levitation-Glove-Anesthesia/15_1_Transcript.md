@@ -20,9 +20,9 @@ You don't have to be lying down or stretched out in a recliner or some other spe
 
 Now, we start off with your stronger hand, your dominant hand. You know, if you're right-handed, that would be your right hand. Left-handed, that would be your left hand.
 
-Take your dominant hand, your stronger hand, and you stare at that stronger hand. Now, your goal here is to use your imagination to cause your hand to rise from your lap all by itself. It feels like it's doing it on its own.
+Take your dominant hand, your stronger hand, and you stare at that stronger hand. Now, your goal here is to use your `imagination` to cause your hand to rise from your lap all by itself. It feels like it's doing it on its own.
 
-In other words, you might say that you're doing it at a subconscious level using your imagination. You imagine it rising up out of your lap, getting higher and higher, all the way up until the back of your hand touches your face without any conscious effort on your part. Your subconscious, which you have already converted into an inner conscious level, will cause your hand to rise at the direction of your imagination.
+In other words, you might say that you're doing it at a subconscious level using your imagination. You imagine it rising up out of your lap, getting higher and higher, all the way up until the back of your hand touches your face without any conscious effort on your part. `Your subconscious, which you have already converted into an inner conscious level, will cause your hand to rise at the direction of your imagination.`
 
 Now, when your hand comes up all by itself, this confirms for you that you are at your level. It confirms that you've lowered your brain frequencies all the way to `five cycles theta`, a `deep theta level`. Because your hand's not going to come up by itself because you want it to at beta.
 
