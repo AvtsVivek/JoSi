@@ -11,15 +11,15 @@ Three to One method.
 
 Now prepare for this mind training exercise by finding a comfortable position. We will start this exercise with the three-to-one method. Find a comfortable position, close your eyes, take a deep breath and while exhaling mentally repeat and visualize the number three, three times. 
 
-![Number 3](../5/images/52_50_Three.png)
+![Number 3](../00500-Numbers/images/52_50_Three.png)
 
 Take another deep breath and while exhaling mentally repeat and visualize the number two, three times. 
 
-![Number 2](../5/images/50_51_NeonNumberTwo.jpg)
+![Number 2](../00500-Numbers/images/50_51_NeonNumberTwo.jpg)
 
 Take another deep breath and while exhaling mentally repeat and visualize the number one, three times. 
 
-![Number 1](../5/images/49_50_NeonNumberOne.jpg)
+![Number 1](../00500-Numbers/images/49_50_NeonNumberOne.jpg)
 
 You are now at level one, the basic plane level that you are learning to use for a purpose, any purpose you desire. 
 

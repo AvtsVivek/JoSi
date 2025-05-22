@@ -2,7 +2,17 @@
 
 `This is the Mirror of the Mind conditioning exercise of the Silva Method.` Now prepare for this mind training exercise by finding a comfortable position. We will start this exercise with the 3 to 1 method.
 
-Find a comfortable position, close your eyes, take a deep breath, and while exhaling, mentally repeat and visualize the number 3 three times. Take another deep breath, and while exhaling, mentally repeat and visualize the number 2 three times. Take another deep breath, and while exhaling, mentally repeat and visualize the number 1 three times.
+Find a comfortable position, close your eyes, take a deep breath, and while exhaling, mentally repeat and visualize the number 3 three times. 
+
+![Number 3](../00500-Numbers/images/52_50_Three.png)
+
+Take another deep breath, and while exhaling, mentally repeat and visualize the number two three times. 
+
+![Number 2](../00500-Numbers/images/50_51_NeonNumberTwo.jpg)
+
+Take another deep breath and while exhaling mentally repeat and visualize the number one, three times. 
+
+![Number 1](../00500-Numbers/images/49_50_NeonNumberOne.jpg)
 
 You are now at level 1, the basic plane level that you are learning to use for a purpose, any purpose you desire. To help you enter a deeper, healthier level of mind, I'm going to count from 10 to 1. On each descending number, you will feel yourself going deeper, and you will enter a deeper, healthier level of mind. 10, 9, feel going deeper, 8, 7, 6, deeper and deeper, 5, 4, 3, deeper and deeper, 2, 1. You are now at a deeper, healthier level of mind, deeper than before.
 
