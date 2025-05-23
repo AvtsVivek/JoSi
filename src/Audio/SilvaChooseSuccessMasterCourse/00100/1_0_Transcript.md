@@ -287,9 +287,8 @@ before.
 
 
 There, how did that feel?
-Remember that if at any time you feel uncomfortable and desire to relax, open your eyes,
-focus, remind yourself to relax, make yourself comfortable, and only when you're comfortable
-and ready to do it again, go back and start the exercise over.
+Remember that if at any time you feel uncomfortable and desire to relax, open your eyes, focus, remind yourself to relax, make yourself comfortable, and only when you're comfortable and ready to do it again, go back and start the exercise over.
+
 Thank you.
 
 
