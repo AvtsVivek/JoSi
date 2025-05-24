@@ -20,15 +20,36 @@ Examining, excavating, and expunging those beliefs is the first step to having a
 "Candid" means being honest, straightforward, and frank, especially in speech or expression. But they were
 candid with my mother afterward; the injury to my brain was not mild.
 
+awful. adjective
+1. very bad or unpleasant. "the place smelled awful"
+2. used to emphasize the extent of something, especially something unpleasant or negative. "I've made an awful fool of myself"
+awfully; very. "we're an awful long way from the motorway"
+
 Ordeal. A very unpleasant and prolonged experience. School became an ordeal for me.
 
-"Muster" has two main meanings. It can mean to gather or assemble, especially troops or a group of people. It can also mean to summon up or produce something, like courage, strength, or support. My parents were called in by my teacher to discuss what I could do to muster a passing grade
+"Muster" has two main meanings. It can mean to gather or assemble, especially troops or a group of people. It can also mean to summon up or produce something, like courage, strength, or support. My parents were called in by my teacher to discuss what I could do to `muster` a passing grade
 
-Bawling" refers to crying or shouting loudly, often in a distressed or uncontrolled manner.
+Bawling" refers to crying or shouting loudly, often in a distressed or uncontrolled manner. I erupted into tears. Not holding-back-the-tears crying, but straight up bawling
+
+bucket list a number of experiences or achievements that a person hopes to have or accomplish during their lifetime.
+"making this trip is the first thing on my bucket list"
+
+I spent the next several minutes writing a bucket list.
 
 "Stewed" typically means cooked slowly in a liquid, often used to describe food like stewed fruit or meat. It can also refer to a state of being agitated or worried. Additionally, in slang, "stewed" can mean drunk or intoxicated. 
 
-In medicine, remission refers to a period where the symptoms of a disease, like cancer, lessen or disappear.
+The phrase "dent in these piles" likely refers to the idiom "make a dent in," which means to reduce or consume something, especially a large or difficult task, by a significant amount. It implies making some progress, however small, in dealing with a large pile or collection of something. 
+
+How was I going to make a dent in these piles when reading was such a labor for me?
+
+Begin to accomplish or consume something, as in I've barely made a dent in this pile of correspondence, or Help us put a dent in this pile.
+
+sustaining
+verb gerund or present participle: 
+1. strengthen or support physically or mentally. "this thought had sustained him throughout the years"
+2. undergo or suffer (something unpleasant, especially an injury). "he sustained severe head injuries"
+
+Remission: In medicine, remission refers to a period where the symptoms of a disease, like cancer, lessen or disappear.
 
 "Serendipitous" means happening or discovered by lucky chance, unexpectedly, and often in a pleasant or beneficial way. It describes a situation where someone finds something valuable or enjoyable by accident, not through deliberate searching or planning. 
 
@@ -67,4 +88,14 @@ A Reuters study, `ominously` titled “Dying for Information,” showed that, �
 out of three respondents associated information overload with tension with
 colleagues and loss of job satisfaction;
 
+Swathe. plural noun: swaths
 
+1. a broad strip or area of something. "vast swathes of countryside"
+2. a row or line of grass, corn, or other crop as it falls or lies when mown or reaped. 
+   1. "if the day is windy, the swathes should be high and narrow"
+
+large swaths of time every day
+
+Dementia is a term used to describe a group of symptoms affecting memory, thinking and social abilities. In people who have dementia, the symptoms interfere with their daily lives. Dementia isn't one specific disease. Several diseases can cause dementia. Dementia generally involves memory loss
+
+Digital dementia.
