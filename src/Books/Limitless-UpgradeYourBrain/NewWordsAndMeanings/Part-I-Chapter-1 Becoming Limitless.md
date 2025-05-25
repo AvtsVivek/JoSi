@@ -53,11 +53,35 @@ Remission: In medicine, remission refers to a period where the symptoms of a dis
 
 "Serendipitous" means happening or discovered by lucky chance, unexpectedly, and often in a pleasant or beneficial way. It describes a situation where someone finds something valuable or enjoyable by accident, not through deliberate searching or planning. 
 
+There’s a serendipitous coda to this story
+
+coda /ˈkəʊdə/ noun Music
+the concluding passage of a piece or movement, typically forming an addition to the basic structure.
+"the first movement ends with a fortissimo coda"
+the concluding section of a dance, especially of a pas de deux or the finale of a ballet in which the dancers parade before the audience.
+a concluding event, remark, or section.
+
 "Surreal" means strange, dreamlike, or unreal, often characterized by fantastic imagery and incongruous juxtapositions.
+
+juxtaposition /ˌdʒʌkstəpəˈzɪʃn/ noun
+the fact of two things being seen or placed close together with contrasting effect.
+
+splinter /ˈsplɪntə/ noun
+a small, thin, sharp piece of wood, glass, or similar material broken off from a larger piece.
+"a splinter of ice"
+
+What’s one of your dreams? One that is ever present, like a splinter in your brain?
 
 `Ideation` is the process of forming ideas, generating new concepts, or thinking about possibilities, often in a creative or business context. It involves the mental activity of creating, developing, and communicating ideas, encompassing everything from initial thought to implementation
 
-An "arch-nemesis" is a person's main or chief enemy or opponent, often one who is particularly difficult or dangerous to overcome. It's the most prominent and most-known enemy of the main character. The term emphasizes the most extreme or powerful form of a nemesis. 
+nemesis /ˈnɛmɪsɪs/ noun
+the inescapable agent of someone's or something's downfall.
+"injury, consistently his nemesis, struck him down during the match"
+
+a long-standing rival; an arch-enemy.
+"will Harry Potter finally defeat his nemesis, Voldemort?"
+
+An "arch-nemesis" is a person's main or chief enemy or opponent, often one who is particularly difficult or dangerous to overcome. It's the most prominent and most-known enemy of the main character. The term emphasizes the most extreme or powerful form of a nemesis.
 
 Just as every superhero has powers, so do they have arch nemeses.
 

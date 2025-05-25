@@ -35,5 +35,3 @@ References
    2. Here we go...
 
 3. https://youtu.be/uBdgmegs2aA
-   1. EXTENDED 6 HOURS - JOSE SILVA ALPHA FREQUENCY | Alpha Isochronic tones | 10Hz Alpha Waves
-4. https://www.youtube.com/watch?v=uBdgmegs2aA

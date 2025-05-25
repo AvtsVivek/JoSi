@@ -36,3 +36,6 @@ https://turboscribe.ai/dashboard
    3. Similar: charm, presence, aura, personality, force of personality, strength of character, individuality, magnetism, animal magnetism, drawing power, attractiveness, appeal, allure, pull, magic, spell, mystique, glamour
    4. a divinely conferred power or talent.
 
+5. https://www.youtube.com/watch?v=uBdgmegs2aA
+   1. EXTENDED 6 HOURS - JOSE SILVA ALPHA FREQUENCY | Alpha Isochronic tones | 10Hz Alpha Waves
+
