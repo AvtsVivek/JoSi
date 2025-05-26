@@ -1,10 +1,8 @@
 
-ironclad adjective
-adjective: iron-clad /ˈʌɪənklad/
-covered or protected with iron.
-noun historical
-noun: iron-clad /ˈʌɪənklad/
-a 19th-century warship with armour plating.
 
-I’m not talking about the ability to fly, create iron-clad armor, or shoot lasers from your eyes, but real-life practical abilities like flying through books, iron-clad memory, laser focus, boundless creativity, clear thinking, mindfulness, superior mental attitude, and more.
+the four supervillains of learning
+“four horsemen” of our age: digital deluge, digital distraction, digital dementia, and digital deduction.
 
+The following is not very clear. 
+With downtime, the neurons made their way from the gateway of memory to the rest of the brain, where long-term memory is stored.
+What is gateway of memory? 

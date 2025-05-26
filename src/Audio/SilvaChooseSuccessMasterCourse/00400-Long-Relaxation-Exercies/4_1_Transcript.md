@@ -4,7 +4,7 @@ This is the `long relaxation exercise` of the silver method. In the background y
 
 This mind-training exercise is adapted from one originally copyrighted by Jose Silva, Dorado, Texas, in 1969 after 25 years of research. New material is copyright 1996 by Jose Silva. Reproduction for redistribution is strictly prohibited. 
 
-Now prepare for this mind-training exercise by finding a comfortable sitting position. We will start this exercise with the 3-1 method. In a comfortable seated position, close your eyes, take a deep breath, and while exhaling mentally repeat and visualize the number 3 times. Whenever you close your eyes to function at deeper levels of mind, occasionally tell yourself mentally, if someone calls me or in case of danger or an emergency, I will open my eyes immediately and be wide awake, feeling fine, and in perfect health. 
+Now prepare for this mind-training exercise by finding a comfortable sitting position. We will start this exercise with the 3-1 method. In a comfortable seated position, close your eyes, take a deep breath, and while exhaling mentally repeat and visualize the number 3 times. Whenever you close your eyes to function at deeper levels of mind, occasionally tell yourself mentally, if someone calls me or in case of danger or an emergency, I will open my eyes immediately and be wide awake, feeling fine, and in perfect health.
 
 ## Entering physical relaxation
 
