@@ -63,4 +63,47 @@ Dementia is a term used to describe a group of symptoms affecting memory, thinki
 
 Digital dementia.
 
+atrophy /ˈatrəfi/
+verb
+gerund or present participle: atrophying
+1.
+(of body tissue or an organ) waste away, especially as a result of the degeneration of cells, or become vestigial during evolution.
+"the calf muscles will atrophy"
+Similar: waste away, waste, become emaciated, wither, shrivel, shrivel up, shrink, become shrunken, dry up, decay, wilt, decline, deteriorate, degenerate, grow weak weaken, become debilitated, become enfeebled
+Opposite: strengthen
+2.
+gradually decline in effectiveness or vigour due to underuse or neglect.
+"the imagination can atrophy from lack of use"
+Similar: peter out, taper off, tail off, dwindle, deteriorate, decline
+
+We tend to identify a handful of sources with which we align and then give those sources extreme influence over our thinking and decision-making. In the process, the “muscles” we use to think critically and reason effectively are atrophying(gradually decline in effectiveness or vigour due to underuse or neglect).
+
+In other words, due to digital deduction, the “muscles” we use to think critically and reason effectively are atrophying.
+
+cede /siːd/
+verb
+gerund or present participle: ceding
+give up (power or territory).
+"in 1874, the islands were ceded to Britain"
+Similar: surrender, concede, relinquish, yield, part with, give up
+
+
+contend /kənˈtɛnd/
+verb
+gerund or present participle: contending
+1.
+struggle to surmount (a difficulty).
+"she had to contend with his uncertain temper"
+Similar: cope with, face, grapple with, deal with, take on, pit oneself against, resist, withstand
+2.
+assert something as a position in an argument.
+"he contends that the judge was wrong"
+Similar: assert, maintain, hold, claim, argue, profess, affirm, aver, avow, insist, state, declare, pronounce, allege, plead
+
+vociferously /və(ʊ)ˈsɪf(ə)rəsli/
+adverb 
+in a loud and forceful manner.
+"the country vociferously opposed the war"
+
+While these four horsemen are the ones we need to contend with most vociferously, there’s another digital danger that is worthy of our attention.
 
