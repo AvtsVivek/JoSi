@@ -36,3 +36,28 @@ a young person (especially in the 1990s) of a subculture characterized by apathy
 
 Or the slacker who became a mathematical genius after suffering a concussion during a bar fight.
 
+
+
+falter
+/ˈfɔːltə,ˈfɒltə/
+verb
+lose strength or momentum.
+"the music faltered, stopped, and started up again"
+speak hesitantly.
+"‘A-Adam?’ he faltered"
+Similar:
+move unsteadily or hesitantly.
+"he faltered and finally stopped in mid-stride"
+
+
+The phrase "think our way out of a paper bag" is not a standard English idiom. However, the phrase "can't [verb] their way out of a paper bag" is a common idiom meaning someone is completely inept or incompetent at a particular skill. For example, "he couldn't fight his way out of a paper bag" means he is a terrible fighter. 
+
+seminal/ˈsɛmɪnl/
+adjective
+1.
+strongly influencing later developments.
+"his seminal work on chaos theory"
+2.
+relating to or denoting semen.
+"the spermatozoa are washed to separate them from the seminal plasma"
+
